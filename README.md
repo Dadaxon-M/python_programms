@@ -1,1 +1,1 @@
-
+pythonda tuzulgan dasturlar jamlanmasi
